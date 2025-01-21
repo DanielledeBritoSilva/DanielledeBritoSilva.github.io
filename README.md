@@ -1,3 +1,1 @@
 # DanielledeBritoSilva.github.io
-
-Hello!
